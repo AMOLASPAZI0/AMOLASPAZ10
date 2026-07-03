@@ -5,7 +5,7 @@ Retrieved 2026-07-03, License - CC BY-SA 4.0
 -->
 
 <h1 align="center">
- <img src="https://66.media.tumblr.com/7994c036e4e7d0bd425b5a9c8cbb8372/tumblr_inline_pgp0fnSCK31uli3vd_540.png" />
+ <img src="https://plain-enam-prod-public.komododecks.com/202607/03/IlJmNS2Z8l9RnNEWWJzO/image.png" />
 </h1>
 
 # rest of readme ..
