@@ -18,4 +18,4 @@ Retrieved 2026-07-03, License - CC BY-SA 4.0
 
 <small>𝙷𝚎𝚛𝚎’𝚜 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 
 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝙶𝚒𝚝𝙷𝚞𝚋 𝚒𝚜 𝚝𝚘𝚘 𝚌𝚘𝚗𝚏𝚞𝚜𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎..(ｰ̀⤙ｰ́ )
-:<link>https://straw.page/make?themes
+:<link>https://felibob.straw.page
