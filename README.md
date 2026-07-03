@@ -8,10 +8,12 @@ Retrieved 2026-07-03, License - CC BY-SA 4.0
  <img src="https://plain-enam-prod-public.komododecks.com/202607/03/p4Hsohm3z3zbGkfeFnC7/image.jpg" />
 </h1>
 
-<h1 align="center">𝙲𝚒𝚊𝚘! 𝚃𝚑𝚒𝚜 𝚒𝚜 𝙵𝚎𝚕𝚒𝚌𝚒𝚊𝚗𝚘!
+<h1 align="center">𝙲𝚒𝚊𝚘! 𝚃𝚑𝚒𝚜 𝚒𝚜 𝙵𝚎𝚕𝚒𝚌𝚒𝚊𝚗𝚘!|˶˙ᵕ˙ )ﾉﾞ
 
  
  <p style="margin: 6 px 0;"><b>𝙸 𝚊𝚖 𝚖𝚘𝚜𝚝𝚕𝚢 𝚊𝚕𝚠𝚊𝚢𝚜 𝚘𝚗𝚕𝚒𝚗𝚎 𝚋𝚞𝚝 𝙸 𝚖𝚒𝚐𝚑𝚝 𝚕𝚎𝚊𝚟𝚎 𝚏𝚘𝚛 𝚜𝚑𝚘𝚛𝚝 𝚙𝚎𝚛𝚒𝚘𝚍𝚜...
 <h1 align="center"> ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<img src="https://plain-enam-prod-public.komododecks.com/202607/03/icF4lITBBiC7jGNEoGns/image.png" />
-</h1>
+
+
+<h1 align="center">𝙷𝚎𝚛𝚎’𝚜 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 
+𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝙶𝚒𝚝𝙷𝚞𝚋 𝚒𝚜 𝚝𝚘𝚘 𝚌𝚘𝚗𝚏𝚞𝚜𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎..(ｰ̀⤙ｰ́ )
