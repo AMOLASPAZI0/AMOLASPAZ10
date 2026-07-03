@@ -5,7 +5,7 @@ Retrieved 2026-07-03, License - CC BY-SA 4.0
 -->
 
 <h1 align="center">
- <img src="https://plain-enam-prod-public.komododecks.com/202607/03/IlJmNS2Z8l9RnNEWWJzO/image.png" />
+ <img src="https://plain-enam-prod-public.komododecks.com/202607/03/p4Hsohm3z3zbGkfeFnC7/image.jpg" />
 </h1>
 
 # rest of readme ..
