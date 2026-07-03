@@ -13,5 +13,5 @@ Retrieved 2026-07-03, License - CC BY-SA 4.0
  
  <p style="margin: 6 px 0;"><b>𝙸 𝚊𝚖 𝚖𝚘𝚜𝚝𝚕𝚢 𝚊𝚕𝚠𝚊𝚢𝚜 𝚘𝚗𝚕𝚒𝚗𝚎 𝚋𝚞𝚝 𝙸 𝚖𝚒𝚐𝚑𝚝 𝚕𝚎𝚊𝚟𝚎 𝚏𝚘𝚛 𝚜𝚑𝚘𝚛𝚝 𝚙𝚎𝚛𝚒𝚘𝚍𝚜...
 <h1 align="center"> ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<img src="https://plain-enam-prod-public.komododecks.com/202607/03/qNnW5UK1BCflYk7IppzH/image.jpg" />
+<img src="https://plain-enam-prod-public.komododecks.com/202607/03/icF4lITBBiC7jGNEoGns/image.png" />
 </h1>
